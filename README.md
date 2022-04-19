@@ -1,0 +1,4 @@
+- 👋 Olá meu nome é @Deisyeli
+- 👍 Meu email de contato é deisyeli.correa@escola.pr.gov.br
+- 🌱 Eu estou interessada em aprender a manusear melhor o computador
+- 💞️ Eu estou aprendendo a usar o computador corretamente com o pensamento computacional
